@@ -21,6 +21,6 @@ danielarrieta041204@gmail.com
 Fun Facts
 
 Español (Nativo) e Inglés (Intermedio)
-Me encuentro en el Colombia 🇨🇴 (Que chimba)
+Me encuentro en Colombia (Que chimba)
 Me gustan los videojuegos
 
